@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zivenpro
+- 👀 I’m interested in free skate
+- 🌱 I’m currently learning powershell&python
+- 😄 Pronouns: DD
